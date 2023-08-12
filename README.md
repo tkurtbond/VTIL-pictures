@@ -1,1 +1,0 @@
-# VTIL-pictures
